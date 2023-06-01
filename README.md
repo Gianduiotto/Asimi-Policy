@@ -31,3 +31,4 @@ If you have any questions or suggestions about this privacy policy, feel free to
 
 This privacy policy is compliant with relevant laws and regulations. Please check back regularly to stay updated on any changes.
 
+© 2023 Team Crisantemi. All rights reserved.
