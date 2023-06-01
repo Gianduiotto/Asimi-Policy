@@ -27,7 +27,7 @@ Changes to This Privacy Policy
 In case there are any changes to this privacy policy in the future, I will post them on this page and update the "Last updated" date accordingly. However, given the nature of the App as a tech demo that does not collect any personal data, significant changes to this policy are not anticipated.
 
 Contact Me
-If you have any questions or suggestions about this privacy policy, feel free to contact me at giovannicapuano96@gmail.com.
+If you have any questions or suggestions about this privacy policy, feel free to contact me at gcapuano96bizness@gmail.com
 
 This privacy policy is compliant with relevant laws and regulations. Please check back regularly to stay updated on any changes.
 
